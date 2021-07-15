@@ -21,5 +21,8 @@ Reddit: https://www.reddit.com/r/LadyShiba/
 
 Mail: info@ladyshiba.site
 
+Lady Shiba.png![Lady Shiba](https://user-images.githubusercontent.com/36309857/125798377-7315e541-7b5f-4416-b4d7-e945b9a64d89.png)
+
+
 
 
